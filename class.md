@@ -1,0 +1,3 @@
+Genki
+Japan
+Manufacturing Company
